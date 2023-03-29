@@ -1,6 +1,8 @@
-- 👋 Hi, I’m @JustadiotHuman / Daniel
-- 👀 I’m interested in Coding, Gaming, Anime
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me:
-  Discord: JustaidiotHuman#6965
+
+    👋 Hi, I’m @JustaidiotHuman
+    21 Yrs
+    Anime 🖤
+    Gaming 🖤
+    MyAnimeList: myanimelist.net/animelist/justaidiothuman
+    Discord: JustaidiotHuman#6965
+
