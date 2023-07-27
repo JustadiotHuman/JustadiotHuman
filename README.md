@@ -1,6 +1,6 @@
 
     👋 Hi, I’m @JustaidiotHuman
-    21 Yrs
+    22 Yrs
     Anime 🖤
     Gaming 🖤
     MyAnimeList: myanimelist.net/animelist/justaidiothuman
